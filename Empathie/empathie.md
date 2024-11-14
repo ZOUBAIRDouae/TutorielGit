@@ -1,6 +1,6 @@
 # Empatie 
 
-## Responsable de formation : : 
+## Responsable de formation : 
 
 ## Ce qu'il dit : 
 
